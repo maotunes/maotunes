@@ -3,11 +3,16 @@
 ![](https://komarev.com/ghpvc/?username=maotunes&color=da013d&style=flat-square&label=HIMEJINS)
 ![](https://github.com/user-attachments/assets/0633c745-c08b-4b34-98f8-7fd74a59409f)
 
+![018c0014](https://github.com/user-attachments/assets/71fb5b38-748e-474c-a4f5-fee27aec19ea)
 ![](https://github.com/user-attachments/assets/a23fc975-742b-44f1-a0e2-e44456b809f0)![tumblr_inline_pdytolGmdr1v11djx_500](https://github.com/user-attachments/assets/a009092b-ffe5-43b7-a087-fda798e59a48)
+![5210043c](https://github.com/user-attachments/assets/ccca8c2b-a8c9-49be-9c30-5e6397eb15a4)
 
 don't be scared to c+h or talk with me! (I'm offtab most of the time so you might need to whisper)
 
-please sign my ata 🥺
+![9af33f52](https://github.com/user-attachments/assets/f9ded2bd-1d73-459e-82c7-9be4e5228e0c) please sign my ata ![ad26f092](https://github.com/user-attachments/assets/60c99d1d-5b99-4fcd-b509-e7802d9f1665)
+
+
+
 
 
 [strawpage](https://anonymaous.straw.page/)
@@ -35,3 +40,4 @@ please sign my ata 🥺
 
 
 ![angel hachiware](https://github.com/user-attachments/assets/79827ee2-e41c-4ad3-bf66-46abde448872)
+
