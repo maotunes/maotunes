@@ -21,7 +21,6 @@ don't be scared to c+h or talk with me! (I'm offtab most of the time so you migh
 
 ![me n oomfs](https://github.com/user-attachments/assets/dff3ae0d-84cd-4fb5-98fe-35b21f8b4c6a)
 ![save me suosaku](https://github.com/user-attachments/assets/7ab14e17-3d14-4ef2-a327-67a711fb1a35)
-![hi iso](https://github.com/user-attachments/assets/88f834c9-f4b8-4416-b727-28b6734c2936)
 ![fishing...](https://github.com/user-attachments/assets/6d67c4e7-c22a-4344-8108-dbed930ad8cf)
 
 
